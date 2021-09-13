@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @FrostTheVII
+- 👀 I’m interested in surviving in this unfair life!
